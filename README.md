@@ -1,2 +1,0 @@
-# Stockforme
-thử phát
